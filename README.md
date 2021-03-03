@@ -10,8 +10,10 @@ New.
 then name it whatever you feel like.
 but then go into versions and find release Flux.
 the press create.
-And your done have fun with Free Flux B13
+And your done have fun with Free Flux B1
 
-
+THIS IS A CLIENT I PAID 15BUCKS FOR. AND I TOUGHT IT WOULD BE A GREAT IDEA TO SHARE IT WITH YOU GUYS. AN I CAN GUARANTEE THAT IT CNA NOT HARM YOUR COMPUTER IN ANY WAY.
 
 TO OPEN THE MENU OF MODS BRES LEFT SHIFT!!!
+
+Link to tutorial https://www.youtube.com/watch?v=Ckr7MwlH7x0&t=7s
