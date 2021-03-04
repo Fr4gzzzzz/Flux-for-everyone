@@ -16,4 +16,5 @@ THIS IS A CLIENT I PAID 15 BUCKS FOR. AND I TOUGHT IT WOULD BE A GREAT IDEA TO S
 
 TO OPEN THE MENU OF MODS BRES LEFT SHIFT!!!
 
-Link to tutorial https://www.youtube.com/watch?v=Ckr7MwlH7x0&t=7s
+
+
